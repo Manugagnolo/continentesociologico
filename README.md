@@ -1,3 +1,1 @@
-# continentesociologico
 
-continente
